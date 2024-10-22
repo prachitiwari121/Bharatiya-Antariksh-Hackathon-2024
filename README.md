@@ -1,1 +1,1 @@
-# Bharatiya-Antariksh-Hackathon-2024-
+# Bharatiya-Antariksh-Hackathon-2024 (Proposal)
